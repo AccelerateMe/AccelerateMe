@@ -1,3 +1,3 @@
-# https://fakecrime.bio/dtr69
+# https://12am.lol/dtr
 
 cancerous codebases 
